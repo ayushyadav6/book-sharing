@@ -8,15 +8,15 @@
 
 **Member 1:**
 
-Ashutosh Kumar Dixit
+Ashutosh Kumar Dixit 
 
 2K18/CO/099
 
 **Member 2:**
 
-Anshul Yadav
+Ayush Singh Yadav
 
-2K18/CO/080
+2K18/CO/105
 
 **Content:**
 
